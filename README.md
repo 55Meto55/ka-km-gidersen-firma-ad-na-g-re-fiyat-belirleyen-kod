@@ -1,0 +1,1 @@
+# ka-km-gidersen-firma-ad-na-g-re-fiyat-belirleyen-kod
